@@ -1,0 +1,1 @@
+Introducing Langdon, the new typeface from XLN Telecom. Working in partnership with Steven Bonner - a leading graphic designer, illustrator and typographer based in the UK - we have developed a typeface that is solid, serious and dependable. Langdon is available as a free download and can be used privately and commercially with no restrictions on usage. We hope you like it!
